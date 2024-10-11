@@ -1,1 +1,1 @@
-# Be1bars69.github.io
+# WorldSkills task
